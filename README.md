@@ -7,3 +7,6 @@
 
 ## Kaarthik rajeev
 1. Be yourself, everyone else is already taken.
+
+## Gowrisankar N P
+1. Become stonger.
