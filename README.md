@@ -7,3 +7,4 @@
 
 ## Kaarthik rajeev
 1. Be yourself, everyone else is already taken.
+2. The only thing we have to fear is fear itself.
