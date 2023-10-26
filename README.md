@@ -9,6 +9,7 @@
 ## Kaarthik rajeev
 1. Be yourself, everyone else is already taken.
 2. The only thing we have to fear is fear itself.
+3. Learning a new skills to grow both personally and professionally.
 
 ## Gowrisankar N P
 1. Become stonger.
