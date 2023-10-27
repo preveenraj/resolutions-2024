@@ -22,3 +22,4 @@
 1. Practice being a morning person.
 2. Savour the smallest moments of life.
 3. Being in peace with less productive days.
+4. Finish atleast 6 books.
