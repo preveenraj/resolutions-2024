@@ -20,3 +20,4 @@
 
 ## Anjali Pullattukunnel Anilkumar
 1. Practice being a morning person.
+2. Savour the smallest moments of life.
