@@ -26,3 +26,5 @@
 
 ## Adhithya Rajan
 1. Write and publish my own book.
+
+3. Becoming a fashion bomb.
