@@ -26,3 +26,6 @@
 
 ## Adhithya Rajan
 1. Write and publish my own book.
+
+
+4. Confident,Independent,Hopeful,Free.
