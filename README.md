@@ -31,8 +31,12 @@
 
 ## Jovia Sijo
 1. Do small things with great love.
+2. My life is my message.
+3. Time is long but life is short.
+4. Worry less, smile more.
 
 ## Sareena Saji
 1. Get a job.
+
 
 
