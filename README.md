@@ -27,3 +27,6 @@
 ## Adhithya Rajan
 1. Write and publish my own book.
 2. Go on a social media break.
+
+## Jovia Sijo
+1. Do small things with great love.
