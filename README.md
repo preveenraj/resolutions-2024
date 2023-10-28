@@ -31,5 +31,5 @@
 
 ## Jovia Sijo
 1. Do small things with great love.
-
+2. My life is my message.
 
