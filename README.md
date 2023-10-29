@@ -42,5 +42,5 @@
 
 ## ajay joy
 1. be rich
-
+2. budgets carefully and spends wisely
 
