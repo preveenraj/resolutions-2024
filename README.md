@@ -50,5 +50,6 @@
 
 ## ajay joy
 1. be rich
-2. budgets carefully and spends wisel
+2. budgets carefully and spends wisely
 3. master the art of coding
+4. live in the present
