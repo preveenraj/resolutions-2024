@@ -40,6 +40,7 @@
 1. Get a job.
 2. Get Organised.
 
-
+## ajay joy
+1. be rich
 
 
