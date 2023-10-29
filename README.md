@@ -45,3 +45,4 @@
 2. budgets carefully and spends wisely
 3. master the art of coding
 4. live in the present
+5. master the art of coding
