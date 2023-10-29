@@ -26,6 +26,20 @@
 
 ## Adhithya Rajan
 1. Write and publish my own book.
-
-
+2. Go on a social media break.
+3. Becoming a fashion bomb.
 4. Confident,Independent,Hopeful,Free.
+
+## Jovia Sijo
+1. Do small things with great love.
+2. My life is my message.
+3. Time is long but life is short.
+4. Worry less, smile more.
+
+## Sareena Saji
+1. Get a job.
+2. Get Organised.
+
+
+
+
