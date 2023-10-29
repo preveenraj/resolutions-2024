@@ -54,3 +54,4 @@
 3. master the art of coding
 4. live in the present
 5. master the art of coding
+6. no over thinking & live in the present
