@@ -55,3 +55,6 @@
 4. live in the present
 5. master the art of coding
 6. no over thinking & live in the present
+
+##  Joemon Mathew
+1. Get a job in a good company
