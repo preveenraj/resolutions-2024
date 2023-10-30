@@ -44,9 +44,9 @@
 
 ## Anu Benny
 1.Getting stronger every day.
-2.Advancing towards my goals
-3.Building strength and resilience consistently
-4.Determined to land the perfect job fit for my skills
+2.Advancing towards my goals.
+3.Building strength and resilience consistently.
+4.Determined to land the perfect job fit for my skills.
 
 ## ajay joy
 1. be rich
