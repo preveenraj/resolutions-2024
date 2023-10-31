@@ -60,6 +60,7 @@
 1. Get a job in a good company.
 2. Reduce usage of social media.
 3. Spend more time with family.
+4. Stay healthy.
 
 ## Vishnu Prasad
 1. Achieve my goals
