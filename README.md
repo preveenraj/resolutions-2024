@@ -57,7 +57,8 @@
 6. no over thinking & live in the present
 
 ##  Joemon Mathew
-1. Get a job in a good company
+1. Get a job in a good company.
+2. Reduce usage of social media.
 
 ## Vishnu Prasad
 1. Achieve my goals
