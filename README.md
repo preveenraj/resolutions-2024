@@ -59,6 +59,7 @@
 ##  Joemon Mathew
 1. Get a job in a good company.
 2. Reduce usage of social media.
+3. Spend more time with family.
 
 ## Vishnu Prasad
 1. Achieve my goals
